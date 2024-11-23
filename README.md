@@ -1,4 +1,4 @@
-### I am the scutoidOS creator. 
+### eat mor turke
 
 + Coding by day
 + Coding by night
